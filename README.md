@@ -12,7 +12,7 @@
 <p align="center">
   📍 Karachi, Sindh, Pakistan &nbsp;•&nbsp;
   📧 abdullahv224@gmail.com &nbsp;•&nbsp;
-  <a href="https://www.linkedin.com/in/muhammad-abdullah-7a59763a7">LinkedIn</a>
+  <a href="https://www.linkedin.com/in/muhammad-abdullah-391045203">LinkedIn</a>
 </p>
 
 ---
